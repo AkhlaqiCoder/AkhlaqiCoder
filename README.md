@@ -1,0 +1,1 @@
+- 👋 Hi, I’m @AkhlaqiCoder, looking to develop ethical solutions
